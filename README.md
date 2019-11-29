@@ -1,1 +1,1 @@
-# warsztaty_1 :D
+# warsztaty_1
